@@ -12,6 +12,6 @@
 使用“日本AV免会员观看”或“高清无水印”等关键词能快速找到所需资源。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ty20250708/ty08 ）</span>
 
 
